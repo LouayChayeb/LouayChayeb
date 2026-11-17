@@ -1,1 +1,1 @@
-i dont know what am doing 
+job's not finished.
